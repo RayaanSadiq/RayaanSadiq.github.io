@@ -1,3 +1,3 @@
-# RayaanSadiq.github.io
+# Rayaan Sadiq's Portfolio
 
 Welcome
